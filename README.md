@@ -1,0 +1,1 @@
+# Capital DBG: Página Bloqueada
